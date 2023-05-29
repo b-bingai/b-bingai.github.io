@@ -1,1 +1,0 @@
-# b-bingai.github.io
